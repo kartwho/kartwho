@@ -1,1 +1,1 @@
-![kat](/IMG_20211226_184735.webp)
+![kat](kat.jpeg)
