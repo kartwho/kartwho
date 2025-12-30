@@ -1,1 +1,1 @@
-![kat](https://gist.github.com/user-attachments/assets/5fce070e-e48c-4291-93b0-b2f35674d917)
+![kat](/IMG_20211226_184735.webp)
